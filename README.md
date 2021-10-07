@@ -1,2 +1,0 @@
-# trabalhos_algoritmos2
- 
